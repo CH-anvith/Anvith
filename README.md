@@ -9,8 +9,7 @@ Hey Folks!! Thanks for stopping by,  Spend some time learning about me.
 
 - 📫 How to reach me **anvith.apply@gmail.com**
 
-- 📄 Know about my experiences [https://www.overleaf.com/project/68449c2fe6ccdca5da9c010a](https://www.overleaf.com/project/68449c2fe6ccdca5da9c010a)
-
+- 📄 Know about my experiences https://www.linkedin.com/in/anvith-reddy-4a2176194/
 - ⚡ Fun fact **I think i am dumb!!**
 
 <h3 align="left">Connect with me:</h3>
